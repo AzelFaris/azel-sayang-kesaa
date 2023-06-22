@@ -1,2 +1,0 @@
-# azel-sayang-kesaa
-Hihihi
